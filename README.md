@@ -1,2 +1,2 @@
 # matakuliah-TIK
-materi matakuliah teknologi informasi dan komunikasi bakal saya sahre disini prosesnya🔰♨
+materi matakuliah teknologi informasi dan komunikasi bakal saya share disini prosesnya🔰♨
